@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @WellWisher2
 - 👀 I’m interested in Helping People
-- 🌱 I’m currently learning Life Lessons
+- 🌱 I’m currently Lost!
 - 💞️ I’m looking to collaborate on IDK
 - 📫 How to reach me @B____t
 
